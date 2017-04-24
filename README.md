@@ -24,5 +24,6 @@
 - [The Measure Of My Days](https://www.amazon.com/exec/obidos/ASIN/0140051643)
 - [The Power Tactics of Jesus Christ and Other Essays](https://www.amazon.com/exec/obidos/ASIN/1845900219)
 - [The Tiger: A True Story of Vengeance and Survival](https://www.amazon.com/exec/obidos/ASIN/0307389049)
+- [The Chess Players](https://www.amazon.com/dp/9997403460)
 
 # Books Read
