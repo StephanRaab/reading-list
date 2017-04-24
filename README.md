@@ -1,6 +1,6 @@
 # Reading List
 - [Cyropaedia](https://www.amazon.com/exec/obidos/ASIN/1456498835)
-- [The Moral sayings of Plubius Syrus: A Roman Slave](https://www.amazon.com/exec/obidos/ASIN/1165074052) 
+- [The Moral sayings of Plubius Syrus: A Roman Slave](https://www.amazon.com/exec/obidos/ASIN/1165074052)
 - [Meditations](https://www.amazon.com/exec/obidos/ASIN/0812968255)
 - [The lives of the most excellent painters, sculptors, and architects](https://www.amazon.com/exec/obidos/ASIN/0375760369)
 - [The Man Without A Country](https://www.amazon.com/exec/obidos/ASIN/1492793167)
@@ -22,3 +22,7 @@
 - [The Harder They Fall](https://www.amazon.com/exec/obidos/ASIN/1566631076)
 - [Losing The War](http://www.leesandlin.com/articles/LosingTheWar.htm)
 - [The Measure Of My Days](https://www.amazon.com/exec/obidos/ASIN/0140051643)
+- [The Power Tactics of Jesus Christ and Other Essays](https://www.amazon.com/exec/obidos/ASIN/1845900219)
+- [The Tiger: A True Story of Vengeance and Survival](https://www.amazon.com/exec/obidos/ASIN/0307389049)
+
+# Books Read
